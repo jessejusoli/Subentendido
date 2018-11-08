@@ -1,0 +1,2 @@
+# Subentendido
+Declaração, Posesia 
